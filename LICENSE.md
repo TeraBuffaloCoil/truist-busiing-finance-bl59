@@ -1,4 +1,4 @@
-# 
+# Truist Business Banking offers a full suite of financial tools for businesses, including loans, deposits, and financial planning.
 
 
 
